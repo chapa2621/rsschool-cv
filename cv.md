@@ -65,7 +65,7 @@ P.S. Thank you for such opportunity.*
 
 English (B2)
 
-Russian  - native
+Russian  -  native
 
 Latvian
    
